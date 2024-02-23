@@ -1,1 +1,0 @@
-# avito-arenda.github.io
